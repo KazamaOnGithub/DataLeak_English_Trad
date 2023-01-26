@@ -1,2 +1,10 @@
 # DataLeak_English_Trad
-This is an English translation of a tab in my DataLeak program
+If you want to have the full, lifetime software, then just upgrade your grade to premium.
+
+I'll explain how to do it right here. First of all please join this permanent link discord
+(copy: https://discord.gg/kgJZvc5Jju)
+
+As for the improvements, here is the list:
+
+Update before everyone else, cancel chargment, extra category, faster search,
+DataLeak Premium grade etc...
